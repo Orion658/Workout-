@@ -40,7 +40,7 @@
 * Choose one type of cardio (jogging, cycling, swimming, etc.) and perform it for 30-45 minutes at moderate intensity.
 * Yoga or static stretching routine (30-45 minutes, focusing on flexibility and mobility)
 
-### **Day 6: Arms**
+### **Day 6: Strength**
 
 * Stretching (3 sets of 10-12 reps)
 * Deadlift (3 sets of 5-3-1 reps)
