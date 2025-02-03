@@ -25,6 +25,7 @@
 * Lunges (3 sets of 10-12 reps per leg)
 * Leg extensions (3 sets of 12-15 reps)
 * Leg curls (3 sets of 10-12 reps)
+* Calf Raises (3 sets of 15-20 reps)
 
 ### **Day 4: Shoulders and Abs**
 
@@ -37,14 +38,15 @@
 ### **Day 5: Cardio**
 
 * Choose one type of cardio (jogging, cycling, swimming, etc.) and perform it for 30-45 minutes at moderate intensity.
+* Yoga or static stretching routine (30-45 minutes, focusing on flexibility and mobility)
 
 ### **Day 6: Arms**
 
-* Bench dips (3 sets of 10-12 reps)
-* Barbell curls (3 sets of 10-12 reps)
-* Hammer curls (3 sets of 10-12 reps)
-* Tricep extensions (3 sets of 12-15 reps)
-* Cable crossovers (3 sets of 12-15 reps)
+* Stretching (3 sets of 10-12 reps)
+* Deadlift (3 sets of 5-3-1 reps)
+* Romanian Deadlifts (3 sets of 10-12 reps)
+* Push Ups (3 sets of 12-15 reps)
+* Walking Lunges (3 sets of 12-15 reps)
 
 ## **Nutrition**
 
